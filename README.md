@@ -48,3 +48,5 @@ MGM Grand Market is regarded as one of the most popular and trusted platforms in
 ### Disclaimer
 
 This guide is presented solely for educational, and informational purposes. The information is meant to enhance your understanding of darknet operations. We do not promote or endorse illegal activities. Always adhere to the appropriate laws and regulations in your area. Explore the darknet safely, and remain well-informed.
+
+Update:  14.07.2025 03:56 I'm pleased to announce that the link is back up.
