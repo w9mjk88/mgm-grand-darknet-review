@@ -51,4 +51,6 @@ This guide is presented solely for educational, and informational purposes. The 
 
 
 
-Update:  18.07.2025
+
+
+Update:  21.07.2025 22:07 URL corrections
