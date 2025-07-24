@@ -53,4 +53,6 @@ This guide is presented solely for educational, and informational purposes. The 
 
 
 
-Update:  21.07.2025 22:07 URL corrections
+
+
+Update:  24.07.2025 link is active again
